@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on basic projects related to Pokemon Rom Hacks.
 - 🤔 I’m looking for help with everything at this point.
 - 💬 Ask me about my weiner.
-- 📫 How to reach me call me beep me if you want to reach me.
+- 📫 How to reach me: Call me beep me if you want to reach me.
 - 😄 Pronouns: He/Him.
 - ⚡ Fun fact: There are no such thing as fun facts.
